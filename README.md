@@ -6,4 +6,4 @@ Writing about design and other creative things in my telegram channel [“oh my 
 <br>
 
 Let's do smth together!<br>
-[portfolio](https://portfolio.daletskaya.com)     [email](mailto:arina@daletskaya.com)     [telegram](https://t.me/daletskaia)
+[Portfolio](https://portfolio.daletskaya.com)     [Email](mailto:arina@daletskaya.com)     [Telegram](https://t.me/daletskaia)
