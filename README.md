@@ -1,7 +1,6 @@
 Hi! 👋
 
-I'm a junior product designer and [Gorbunov bureau](https://bureau.ru/school/designers/16/) student.<br>
-Writing about design and other creative things in my telegram channel [“oh my eyes”](https://t.me/glazamoiglaza) (ru).
+I'm a junior product designer. Writing about design and other creative things in my telegram channel [“oh my eyes”](https://t.me/glazamoiglaza) (ru).
 <br>
 <br>
 
