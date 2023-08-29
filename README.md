@@ -1,6 +1,6 @@
 Hi! 👋
 
-I'm a junior product designer. Writing about design and other creative things in my telegram channel [“oh my eyes”](https://t.me/glazamoiglaza) (ru).
+I'm a product designer. Write about design and beyond in my telegram channel [“oh my eyes”](https://t.me/glazamoiglaza) (ru).
 <br>
 <br>
 
